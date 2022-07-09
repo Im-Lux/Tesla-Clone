@@ -21,7 +21,7 @@ Projects Screenshots:
 ![tesla01](https://user-images.githubusercontent.com/46372998/178103062-0afc76a2-0453-461a-a16f-17c237cd6058.png)
 
 ## *MODEL 3* 
-#### - I posted screenshots only for Model 3! Please check website for other cars and solars! 
+#### - I posted screenshots only for Model 3! Please check the website for other cars and solars! 
 
 ![tesla02](https://user-images.githubusercontent.com/46372998/178103063-9651700c-7e34-4a86-8bae-efadcaec8113.png)
 
